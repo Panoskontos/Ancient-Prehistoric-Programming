@@ -1,3 +1,3 @@
 # Ancient-Prehistoric-Programming
 
-##### Only a 120 year old and above human could understand this language
+##### This laguage is so old only a 1200 year's old and above can understand it. 😜 
